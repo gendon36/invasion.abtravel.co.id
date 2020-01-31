@@ -1,1 +1,0 @@
-# enabled.adyjember.co.id
